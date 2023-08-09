@@ -6,3 +6,6 @@ Where Are Continental Tires Made? - https://wheelguiders.com/where-are-continent
 Where Are Bridgestone Tires Made? - https://wheelguiders.com/where-are-bridgestone-tires-made/
 
 Where Are Hercules Tires Made?    - https://wheelguiders.com/where-are-hercules-tires-made/
+
+What Are Wheel Guiders?
+Wheel Guiders are intuitive, tech-based group that assists vehicle owners in finding the right tire for their needs. They use a combination of real life tests, research and consumer and expert reviews to suggest tires that would best match a vehicle owner's preferences and driving conditions. To find the right tires for you vehicle visit http://www.wheelguiders.com/
